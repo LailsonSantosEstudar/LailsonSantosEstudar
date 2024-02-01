@@ -40,4 +40,4 @@ rrently working on ...
   
 </div>
 
-![Snake animation] (https://github.com/LailsonSantosEstudar/blob/output/github-contribution-grid-snake.srv)
+![Snake animation](https://github.com/LailsonSantosEstudar/blob/output/github-contribution-grid-snake.svg)
