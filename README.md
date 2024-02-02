@@ -1,5 +1,3 @@
-
-
 OLÁ ME CHAMO LAILSON SANTOS, BEM-VINDO AO MEU PERFIL, PODEM ME CHAMAR SÓ DE LAILSON🍀...! 🍀...!
 
 Atualmente em Busca de um emprego...
